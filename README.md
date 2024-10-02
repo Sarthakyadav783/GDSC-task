@@ -1,1 +1,1 @@
-![Uploading Screenshot 2024-10-02 at 6.37.26 PM (1).png…]()
+[ScreenShot](https://github.com/Sarthakyadav783/GDSC-task/blob/main/Screenshot%202024-10-02%20at%206.37.26%E2%80%AFPM%20(1).png?raw=true)
